@@ -1,5 +1,5 @@
 # 💫 About Me:
-Unlocking boundless potential in a dynamic, forward-moving environment<br>I am ready to leverage my skills to propel the success of a visionary<br>organization, where every contribution makes a meaningful impact
+Unlocking boundless potential in a dynamic, forward-moving environment I am ready to leverage my skills to propel the success of a visionary organization, where every contribution makes a meaningful impact
 
 
 ## 🌐 Socials:
